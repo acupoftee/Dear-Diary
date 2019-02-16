@@ -2,12 +2,11 @@
 a novel for NaNoGenMo2017 using the Reddit API
 
 # Sample Entry
-August 11, 1986
+<p>
+August 11, 1986</br>
  I'm completely consumed by the events...they haven't moved back to ground zero wondering why or where she was 43. But the frustrating part is not in a sub-nautical vacuum chamber. Next day we all did it that as soon as he was trying to attack me. There's a dance party and less worried about grades. She managed to knock him down with a big opening. I realize I can't remember if what I'm talking with my child. Walking up to him grab him by the events...they haven't moved back to what we were soon gone. That's it, it seems to be a Goosebumps book. I laughed out loud like a little bit inside?
-
-June 03, 1987
+</br>
+June 03, 1987</br>
   The weird thing was very difficult path to the dark unfinished basement and something inside there that was dangerous to try harder to do was cleave her neck or chop her head off to get the one that really freaks me out. Once we got to a group of friends. Oct 15-16: PRR: Part 1: I am welcomed by the events...they haven't moved back to me. I was at my old school telephone office. It made sense mine was a Sinister Six movie. Time slowly drags along as I did, a couple university colleagues. We were open, not awkward, and we climbed back down. I had some inside knowledge on what they're saying abd keep talking in an ethics class, and I look to my right and slightly behind me. My hands weren't shaking out of fear, but out of her stories who “got out” into the house and the conditions are rough and dirty. so that I still found it kind of metal as a Blues Brother and still ongoing. its like trying to see what classes I have known because I told her to my house, i assume, and we reach the wall. My grandpa then informs her that the people on the people are building collapses. It was 5am and the three slowly walked up to me something, what it felt like: I was aware I was in towards the house. Walking forward and forward between animals.
-
-October 11, 2001
- We tried to warn him. Maybe that's why they're so close, stardust and the girl in my own bed observing this from the family in the white plane of existence then i saw was an emotional mess. After that we jumpcutted to a balcony of some play I missed, and few of mine took place in houses made of wood instead of concrete and are very colorful. We then ended up blowing up. And then it just stoped. One was named Felicity, and she dumped me for a couple journals proving such a kind of powerful device. “I want you to watch for him. Why was this boy in 7th grade. I'm just really curious at this age group I feel like all this is important to note. That’s when it comes to me at the same group of individuals were excited about. This lasted for 10 minutes, then I could understand and contribute to what appears to be true but we've ended up leaving me in bed. END OF DREAM 1 For 15 to 30 seconds, I believe in past lives and all, but last night is no different. That's what it was a very difficult to get out of their structure being toppled. It keeps going on the ground, my other relatives trying to find a grizzly bear with large, blacked out eyes on the street. ‘Is someone watching’, ‘Do they think I might have gotten a heart attack and probably would know even less about him or us?
+</p>
 
